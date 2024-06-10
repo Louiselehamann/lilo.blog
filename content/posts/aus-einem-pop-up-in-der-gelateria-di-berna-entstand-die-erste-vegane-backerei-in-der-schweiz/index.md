@@ -3,6 +3,7 @@ title = "Aus einem pop up in der Gelateria di Berna entstand die erste vegane B�
 date = "2024-03-15"
 draft = false
 pinned = false
+image = "img_5796.jpeg"
 +++
 Lycra Stattmann erz채hlt, wie die Bakery Bakery entstanden ist und was es auf sich hat, eine vegane B채ckerei zu gr체nden. Sie ist seit 17 Jahren vegan und hat zusammen mit ihrem Partner Kevin Schmid die erste vegane B채ckerei der Schweiz gegr체ndet.
 
