@@ -26,9 +26,7 @@ In der Bakery Bakery steht nicht nur die rein vegane Ernährung im Vordergrund, 
 
 **Weltrekord** 
 
-{{<box>}} 
-
-Ein kalter Wintermorgen in Bern. In der Bakery Bakery herrscht geschäftiges Treiben und gespannte Vorfreude. Am 3. Februar 2024 soll hier das größte vegane Gebäck der Welt entstehen. Was als Spaß begann, wird nun Realität und bringt die kleine Bäckerei ins Rampenlicht. Ein Meilenstein für die Bakery Bakery steht bevor.  {{<box>}}
+{{<box>}}Ein kalter Wintermorgen in Bern. In der Bakery Bakery herrscht geschäftiges Treiben und gespannte Vorfreude. Am 3. Februar 2024 soll hier das größte vegane Gebäck der Welt entstehen. Was als Spaß begann, wird nun Realität und bringt die kleine Bäckerei ins Rampenlicht. Ein Meilenstein für die Bakery Bakery steht bevor.  {{<box>}}
 
 Ein großer Schritt für die Bakery Bakery ist der Weltrekord, den sie am 3. Februar 2024 aufstellen für das größte vegane Gebäck. Die Idee, diesen Weltrekord aufzustellen, entsteht durch einen Spaß. Dann setzen sie diesen Spaß jedoch in die Realität um, und es klappt schlussendlich. Durch diese Aktion gelangt die Bakery Bakery in die Medien und in die Presse, was auch das Ziel ist. Diese Aktion dient jedoch nicht nur der Aufmerksamkeit, sondern auch als Statement für die Vielfalt und Kreativität der veganen Küche. 
 
