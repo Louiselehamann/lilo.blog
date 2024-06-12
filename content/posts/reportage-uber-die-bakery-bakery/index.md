@@ -6,11 +6,11 @@ pinned = false
 tags = ["Veganesessen", "Bäckere", "vegan", "Food", "Reportag", "interview"]
 image = "img_5796.jpeg"
 +++
-
-
 Die Bakery Bakery, die erste vegane Bäckerei der Schweiz, ist mehr als nur ein Geschäft. Sie ist das Ergebnis einer langjährigen Leidenschaft für vegane Lebensmittel und einer Vision, die Lycra Stattmann und ihr Partner Kevin Schmid in die Realität umgesetzt haben. Lycra lebt seit siebzehn Jahren vegan und ihr Partner seit acht Jahren. Sie entscheiden sich, eine Lücke auf dem Markt zu füllen, indem sie leckere vegane Backwaren anbieten, die sehr gut bei ihren Kundinnen ankommen.
 
-"Es war anfangs einfach eine spontane Idee", erzählt Lycra. "Aus einer Leidenschaft wurde  dann ein Business." 
+![Lycra Stattmann, Gründerin der Bakery Bakery ](img_5796.jpeg)
+
+"Es war anfangs einfach eine spontane Idee", erzählt Lycra Nachdem sie einen Schluck aus ihrer Kaffeetasse nimmt. "Aus einer Leidenschaft wurde dann ein Business." 
 
 Die Bakery Bakery entsteht 2019, als sie ein Pop-up in der Gelateria di Berna für drei Monate betreiben. Die positiven Rückmeldungen der Kunden ermutigen sie, ihren Traum weiterzuverfolgen und die erste rein vegane Bäckerei der Schweiz zu gründen. Das geschieht in Breitenrain, Bern. Mittlerweile hat die Bakery Bakery bereits fünf verschiedene Standorte in der Schweiz.
 
