@@ -10,7 +10,7 @@ Die Bakery Bakery, die erste vegane Bäckerei der Schweiz, ist mehr als nur ein 
 
 ![Lycra Stattmann, Gründerin der Bakery Bakery ](img_5796.jpeg)
 
-"Es war anfangs einfach eine spontane Idee", erzählt Lycra Nachdem sie einen Schluck aus ihrer Kaffeetasse nimmt. "Aus einer Leidenschaft wurde dann ein Business." 
+> "Es war anfangs einfach eine spontane Idee", erzählt Lycra Nachdem sie einen Schluck aus ihrer Kaffeetasse nimmt. "Aus einer Leidenschaft wurde dann ein Business." 
 
 Die Bakery Bakery entsteht 2019, als sie ein Pop-up in der Gelateria di Berna für drei Monate betreiben. Die positiven Rückmeldungen der Kunden ermutigen sie, ihren Traum weiterzuverfolgen und die erste rein vegane Bäckerei der Schweiz zu gründen. Das geschieht in Breitenrain, Bern. Mittlerweile hat die Bakery Bakery bereits fünf verschiedene Standorte in der Schweiz.
 
@@ -20,6 +20,6 @@ Bei der Herstellung ihrer Produkte legt das Team Wert auf Geschmack und Qualitä
 
 Ein weiterer großer Schritt ist der Weltrekord, den sie am 3. Februar 2024 aufstellen für das größte vegane Gebäck. Die Idee, diesen Weltrekord aufzustellen, entsteht durch einen Spaß. Dann setzen sie diesen Spaß jedoch in die Realität um, und es klappt schlussendlich. Durch diese Aktion gelangt die Bakery Bakery in die Medien und in die Presse, was auch das Ziel ist. Diese Aktion dient jedoch nicht nur der Aufmerksamkeit, sondern auch als Statement für die Vielfalt und Kreativität der veganen Küche. Die Bakery Bakery bekommt sehr viele positive Reaktionen und Rückmeldungen, jedoch nicht nur. Denn es gibt auch Kritik. Die vegane Bäckerei bekommt von einem rechtsorientierten Politiker Kritik, da er mit der Art, wie die Bakery Bakery ihre Backwaren benennt, ein Problem hat. Das Team gibt solchen Kritiken nicht besonders viel Aufmerksamkeit, denn sie konzentrieren sich auf die vielen positiven Rückmeldungen ihrer Kundinnen.
 
-Für die Zukunft plant die Bakery Bakery, ihr Sortiment zu erweitern, besonders im Bereich warmer Speisen und Schokolade. Ihre Bestseller, wie das "schicki Gipfeli", bleiben weiterhin beliebt bei ihren Kunden.
+Für die Zukunft plant die Bakery Bakery, ihr Sortiment zu erweitern, besonders im Bereich warmer Speisen und Schokolade. Ihre Bestseller, wie das "schocki Gipfeli", bleiben weiterhin beliebt bei ihren Kunden.
 
 Abschließend lädt Lycra die Leser und Leserinnen ein, die Bakery Bakery zu besuchen und ihre veganen Köstlichkeiten zu probieren. "Sie sollen keine Angst haben, nur weil es vegan ist", betont sie. Die Bakery Bakery steht für Genuss, Vielfalt und eine nachhaltige Lebensweise - ein Ort, der zeigt, dass veganes Essen alles andere als langweilig ist.
