@@ -6,7 +6,7 @@ pinned = false
 tags = ["Veganesessen", "Bäckere", "vegan", "Food", "Reportag", "interview"]
 image = "img_4394.png"
 +++
-`Die Bakery Bakery, die erste vegane Bäckerei der Schweiz, ist mehr als nur ein Geschäft. Sie ist das Ergebnis einer langjährigen Leidenschaft für vegane Lebensmittel und einer Vision, die Lycra Stattmann und ihr Partner Kevin Schmid in die Realität umgesetzt haben. Lycra lebt seit siebzehn Jahren vegan und ihr Partner seit acht Jahren. Sie entscheiden sich, eine Lücke auf dem Markt zu füllen, indem sie leckere vegane Backwaren anbieten, die sehr gut bei ihren Kundinnen ankommen.`
+Die Bakery Bakery, die erste vegane Bäckerei der Schweiz, ist mehr als nur ein Geschäft. Sie ist das Ergebnis einer langjährigen Leidenschaft für vegane Lebensmittel und einer Vision, die Lycra Stattmann und ihr Partner Kevin Schmid in die Realität umgesetzt haben. Lycra lebt seit siebzehn Jahren vegan und ihr Partner seit acht Jahren. Sie entscheiden sich, eine Lücke auf dem Markt zu füllen, indem sie leckere vegane Backwaren anbieten, die sehr gut bei ihren Kundinnen ankommen.
 
 ![Lycra Stattmann, Gründerin der Bakery Bakery ](img_5796.jpeg)
 
@@ -24,19 +24,13 @@ In der Bakery Bakery steht nicht nur die rein vegane Ernährung im Vordergrund, 
 
  Das Sortiment wird ständig an die Wünsche der Kunden angepasst, wobei Klassiker aus der Kindheit und natürlich die Bestseller drin bleiben. Die Gründerinnen Lycra und Kevin arbeiten eng mit einem Bäcker zusammen, um die Rezepturen zu verfeinern. Nach monatelangen Experimenten können selbst erfahrene Bäckerinnen den Unterschied zwischen veganen und tierischen Produkten nicht mehr feststellen. Das ist ein großer Schritt für die Bakery Bakery. 
 
-
-
 **Weltrekord** 
 
 Ein weiterer großer Schritt ist der Weltrekord, den sie am 3. Februar 2024 aufstellen für das größte vegane Gebäck. Die Idee, diesen Weltrekord aufzustellen, entsteht durch einen Spaß. Dann setzen sie diesen Spaß jedoch in die Realität um, und es klappt schlussendlich. Durch diese Aktion gelangt die Bakery Bakery in die Medien und in die Presse, was auch das Ziel ist. Diese Aktion dient jedoch nicht nur der Aufmerksamkeit, sondern auch als Statement für die Vielfalt und Kreativität der veganen Küche. 
 
-
-
 **meinungen zu der Bakery Bakery** 
 
 Die Bakery Bakery bekommt sehr viele positive Reaktionen und Rückmeldungen, jedoch nicht nur. Denn es gibt auch Kritik. Die vegane Bäckerei bekommt von einem rechtsorientierten Politiker Kritik, da er mit der Art, wie die Bakery Bakery ihre Backwaren benennt, ein Problem hat. Das Team gibt solchen Kritiken nicht besonders viel Aufmerksamkeit, denn sie konzentrieren sich auf die vielen positiven Rückmeldungen ihrer Kundinnen.
-
-
 
 **Zukunft** 
 
