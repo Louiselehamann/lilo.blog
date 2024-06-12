@@ -12,7 +12,9 @@ image = "img_4394.png"
 
 > "Es war anfangs einfach eine spontane Idee", erzählt Lycra Nachdem sie einen Schluck aus ihrer Kaffeetasse nimmt. "Aus einer Leidenschaft wurde dann ein Business." 
 
-**Entstehung**                                                                                                                                                                      Die Bakery Bakery entsteht 2019, als sie ein Pop-up in der Gelateria di Berna für drei Monate betreiben. Die positiven Rückmeldungen der Kunden ermutigen sie, ihren Traum weiterzuverfolgen und die erste rein vegane Bäckerei der Schweiz zu gründen. Das geschieht in Breitenrain, Bern. Mittlerweile hat die Bakery Bakery bereits fünf verschiedene Standorte in der Schweiz.
+**Entstehung** 
+
+Die Bakery Bakery entsteht 2019, als sie ein Pop-up in der Gelateria di Berna für drei Monate betreiben. Die positiven Rückmeldungen der Kunden ermutigen sie, ihren Traum weiterzuverfolgen und die erste rein vegane Bäckerei der Schweiz zu gründen. Das geschieht in Breitenrain, Bern. Mittlerweile hat die Bakery Bakery bereits fünf verschiedene Standorte in der Schweiz.
 
 In der Bakery Bakery steht nicht nur die rein vegane Ernährung im Vordergrund, sondern auch das Bewusstsein für die Umwelt und ethische Entscheidungen. Die Bakery Bakery setzt einen hohen Wert darauf, dass ihre Produkte ethisch vertretbar sind. Zurzeit verwenden sie leider in ein paar Produkten Mischungen, welche Palmöl enthalten. Dies wollen sie verbessern. Zurzeit sind im Bakery Bakery Team 13 Personen, die nicht alle vegan sind. Denn Lycra erzählt, dass die Mitarbeiterinnen der Bakery Bakery nicht zwingend vegan sein müssen, aber es wird erwartet, dass sie sich mit dem Thema auseinandersetzen und dahinterstehen.
 
