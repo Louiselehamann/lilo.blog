@@ -48,7 +48,7 @@ Du bist unser Fluss, du bist unser Raum.
 
 
 
-Im Winter, wenn Menschen sich nicht mehr in dich bewegen, 
+Im Winter, wenn Menschen sich nicht mehr in dir bewegen, 
 
 Bist du ein Spiegel, von uns überlegen.  
 
