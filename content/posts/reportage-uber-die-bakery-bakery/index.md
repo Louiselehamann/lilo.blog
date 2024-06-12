@@ -12,15 +12,9 @@ image = "img_4394.png"
 
 > "Es war anfangs einfach eine spontane Idee", erzählt Lycra Nachdem sie einen Schluck aus ihrer Kaffeetasse nimmt. "Aus einer Leidenschaft wurde dann ein Business." 
 
-
-
 **Entstehung**                                                                                                                                                                      Die Bakery Bakery entsteht 2019, als sie ein Pop-up in der Gelateria di Berna für drei Monate betreiben. Die positiven Rückmeldungen der Kunden ermutigen sie, ihren Traum weiterzuverfolgen und die erste rein vegane Bäckerei der Schweiz zu gründen. Das geschieht in Breitenrain, Bern. Mittlerweile hat die Bakery Bakery bereits fünf verschiedene Standorte in der Schweiz.
 
-
-
 In der Bakery Bakery steht nicht nur die rein vegane Ernährung im Vordergrund, sondern auch das Bewusstsein für die Umwelt und ethische Entscheidungen. Die Bakery Bakery setzt einen hohen Wert darauf, dass ihre Produkte ethisch vertretbar sind. Zurzeit verwenden sie leider in ein paar Produkten Mischungen, welche Palmöl enthalten. Dies wollen sie verbessern. Zurzeit sind im Bakery Bakery Team 13 Personen, die nicht alle vegan sind. Denn Lycra erzählt, dass die Mitarbeiterinnen der Bakery Bakery nicht zwingend vegan sein müssen, aber es wird erwartet, dass sie sich mit dem Thema auseinandersetzen und dahinterstehen.
-
-
 
 **Bei der Herstellung ihrer Produkte legt das Team Wert auf Geschmack und Qualität.**
 
@@ -28,7 +22,21 @@ In der Bakery Bakery steht nicht nur die rein vegane Ernährung im Vordergrund, 
 
  Das Sortiment wird ständig an die Wünsche der Kunden angepasst, wobei Klassiker aus der Kindheit und natürlich die Bestseller drin bleiben. Die Gründerinnen Lycra und Kevin arbeiten eng mit einem Bäcker zusammen, um die Rezepturen zu verfeinern. Nach monatelangen Experimenten können selbst erfahrene Bäckerinnen den Unterschied zwischen veganen und tierischen Produkten nicht mehr feststellen. Das ist ein großer Schritt für die Bakery Bakery. 
 
-Ein weiterer großer Schritt ist der Weltrekord, den sie am 3. Februar 2024 aufstellen für das größte vegane Gebäck. Die Idee, diesen Weltrekord aufzustellen, entsteht durch einen Spaß. Dann setzen sie diesen Spaß jedoch in die Realität um, und es klappt schlussendlich. Durch diese Aktion gelangt die Bakery Bakery in die Medien und in die Presse, was auch das Ziel ist. Diese Aktion dient jedoch nicht nur der Aufmerksamkeit, sondern auch als Statement für die Vielfalt und Kreativität der veganen Küche. Die Bakery Bakery bekommt sehr viele positive Reaktionen und Rückmeldungen, jedoch nicht nur. Denn es gibt auch Kritik. Die vegane Bäckerei bekommt von einem rechtsorientierten Politiker Kritik, da er mit der Art, wie die Bakery Bakery ihre Backwaren benennt, ein Problem hat. Das Team gibt solchen Kritiken nicht besonders viel Aufmerksamkeit, denn sie konzentrieren sich auf die vielen positiven Rückmeldungen ihrer Kundinnen.
+
+
+**Weltrekord** 
+
+Ein weiterer großer Schritt ist der Weltrekord, den sie am 3. Februar 2024 aufstellen für das größte vegane Gebäck. Die Idee, diesen Weltrekord aufzustellen, entsteht durch einen Spaß. Dann setzen sie diesen Spaß jedoch in die Realität um, und es klappt schlussendlich. Durch diese Aktion gelangt die Bakery Bakery in die Medien und in die Presse, was auch das Ziel ist. Diese Aktion dient jedoch nicht nur der Aufmerksamkeit, sondern auch als Statement für die Vielfalt und Kreativität der veganen Küche. 
+
+
+
+**meinungen zu der Bakery Bakery** 
+
+Die Bakery Bakery bekommt sehr viele positive Reaktionen und Rückmeldungen, jedoch nicht nur. Denn es gibt auch Kritik. Die vegane Bäckerei bekommt von einem rechtsorientierten Politiker Kritik, da er mit der Art, wie die Bakery Bakery ihre Backwaren benennt, ein Problem hat. Das Team gibt solchen Kritiken nicht besonders viel Aufmerksamkeit, denn sie konzentrieren sich auf die vielen positiven Rückmeldungen ihrer Kundinnen.
+
+
+
+**Zukunft** 
 
 Für die Zukunft plant die Bakery Bakery, ihr Sortiment zu erweitern, besonders im Bereich warmer Speisen und Schokolade. Ihre Bestseller, wie das "schocki Gipfeli", bleiben weiterhin beliebt bei ihren Kunden.
 
