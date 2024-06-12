@@ -30,6 +30,8 @@ In der Bakery Bakery steht nicht nur die rein vegane Ernährung im Vordergrund, 
 
 Ein großer Schritt für die Bakery Bakery ist der Weltrekord, den sie am 3. Februar 2024 aufstellen für das größte vegane Gebäck. Die Idee, diesen Weltrekord aufzustellen, entsteht durch einen Spaß. Dann setzen sie diesen Spaß jedoch in die Realität um, und es klappt schlussendlich. Durch diese Aktion gelangt die Bakery Bakery in die Medien und in die Presse, was auch das Ziel ist. Diese Aktion dient jedoch nicht nur der Aufmerksamkeit, sondern auch als Statement für die Vielfalt und Kreativität der veganen Küche. 
 
+![](img_4409.jpeg)
+
 **meinungen zu der Bakery Bakery** 
 
 Die Bakery Bakery bekommt sehr viele positive Reaktionen und Rückmeldungen, jedoch nicht nur. Denn es gibt auch Kritik. Die vegane Bäckerei bekommt von einem rechtsorientierten Politiker Kritik, da er mit der Art, wie die Bakery Bakery ihre Backwaren benennt, ein Problem hat. Das Team gibt solchen Kritiken nicht besonders viel Aufmerksamkeit, denn sie konzentrieren sich auf die vielen positiven Rückmeldungen ihrer Kundinnen.
