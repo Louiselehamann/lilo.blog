@@ -1,5 +1,5 @@
 +++
-title = "Reportage über die Bakery Bakery "
+title = "Die Bakery Bakery "
 date = "2024-06-12"
 draft = false
 pinned = false
